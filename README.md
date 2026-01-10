@@ -1,5 +1,5 @@
 # scourge
-![](https://i.postimg.cc/J4kT0M5k/Untitled322-20260110151430.png) 
+![](https://i.postimg.cc/SRb16Kqm/Untitled323-20260110162130.png) 
 
 @vyytech on discord, i accept frqs always :]
 

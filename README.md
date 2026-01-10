@@ -1,4 +1,4 @@
-# scourge
+# scourge maybe
 ![](https://i.postimg.cc/SRb16Kqm/Untitled323-20260110162130.png) 
 
 @vyytech on discord, i accept frqs always :]

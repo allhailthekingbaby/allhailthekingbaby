@@ -1,4 +1,4 @@
-![prns page](https://en.pronouns.page/@vyytech) ![rentry](https://rentry.co/allhailtheking) ![strawpage](https://allhailthekingbaby.straw.page) ![guns](https://guns.lol/vyytech) 
+[prns page](https://en.pronouns.page/@vyytech) [rentry](https://rentry.co/allhailtheking) [strawpage](https://allhailthekingbaby.straw.page) [guns](https://guns.lol/vyytech) 
 
 # scourge maybe
 ![](https://i.postimg.cc/SRb16Kqm/Untitled323-20260110162130.png) 

@@ -9,6 +9,7 @@
 
 i am ALWAYS open to c+h, kissing, booping etc　　　　　　　　　　　　
 　　　　ships int PLEEEEAAE I YEARN but js dont try rp with me it makes me uncomfortable ok? ok
+    HEAVY ON METONIC, MEPHINITE AND ANY SCOURGE SHIPS THEY BRING ME SUCH FUCKIGN JOY TYUOY DOTN GDUNRSNTAD YOU DONT GE T TIT why is tit here
 
 
 i almost never fully lay down on pt and prefer sitting, if im laid down im most likely in a bad mood and want some kind of company but dont feel forced to sit with me LMAO

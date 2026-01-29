@@ -7,9 +7,6 @@
 
 　scourge / finn　　masc prns
 
-i am ALWAYS open to c+h, kissing, booping etc　　　　　　　　　　　　
-　　　　ships int PLEEEEAAE I YEARN but js dont try rp with me it makes me uncomfortable ok? ok
-    HEAVY ON METONIC, MEPHINITE AND ANY SCOURGE SHIPS(couguh mephourg WHOSAID THA) THEY BRING ME SUCH FUCKIGN JOY TYUOY DOTN GDUNRSNTAD YOU DONT GE T TIT why is tit here
+always open to c+h, int, kiss, boop, whatever but im usually afk or offtab and literally require you to w2i or i wont see you
 
-
-i almost never fully lay down on pt and prefer sitting, if im laid down im most likely in a bad mood and want some kind of company but dont feel forced to sit with me LMAO
+HHEHEEAAAAVILY encourage c+hing actually, i really like sitting with people i just usually dont approach others cuz im a smelly adult and im not sure how people are with me sitting around them, the only time i will actually approach anyone is using my cream skin and 9 times out of 10 im regressed if im using it LMFAOA ToT

@@ -5,7 +5,7 @@
 
 @vyytech on discord, i accept frqs always :]
 
-　scourge / finn　　masc prns
+　scourge / tech / finn　　masc prns
 
 always open to c+h, int, kiss, boop, whatever but im usually afk or offtab and literally require you to w2i or i wont see you
 

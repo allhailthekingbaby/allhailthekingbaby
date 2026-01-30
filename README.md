@@ -12,3 +12,6 @@ always open to c+h, int, kiss, boop, whatever but im usually afk or offtab and l
 HHEHEEAAAAVILY encourage c+hing actually, i really like sitting with people i just usually dont approach others cuz im a smelly adult and im not sure how people are with me sitting around them
 
 SHIPS INT IF YOU WANT I DONT GAF - very big metonic, metadow, mephinite, mephourge and manadow shipper but i like any and all ships! just sonamy iwc cuz ive had a LOT of bad experiences with sonamy shippers, its nothing personal to you though
+
+![](https://i.postimg.cc/26CCgXYt/Screenshot-20260130-131643.jpg)
+normally i will be sat in this spot and i almost never leave it unless im with a friend or someone is standing / sitting in that area and i dont wanna be covered by or to cover them, if thats the case ill sit just slightly above on the other side of the path

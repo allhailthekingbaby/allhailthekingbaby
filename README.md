@@ -9,4 +9,6 @@
 
 always open to c+h, int, kiss, boop, whatever but im usually afk or offtab and literally require you to w2i or i wont see you
 
-HHEHEEAAAAVILY encourage c+hing actually, i really like sitting with people i just usually dont approach others cuz im a smelly adult and im not sure how people are with me sitting around them, the only time i will actually approach anyone is using my cream skin and 9 times out of 10 im regressed if im using it LMFAOA ToT
+HHEHEEAAAAVILY encourage c+hing actually, i really like sitting with people i just usually dont approach others cuz im a smelly adult and im not sure how people are with me sitting around them
+
+SHIPS INT IF YOU WANT I DONT GAF - very big metonic, metadow, mephinite, mephourge and manadow shipper but i like any and all ships! just sonamy iwc cuz ive had a LOT of bad experiences with sonamy shippers, its nothing personal to you though

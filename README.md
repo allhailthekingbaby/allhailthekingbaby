@@ -11,7 +11,7 @@ always open to c+h, int, kiss, boop, whatever but im usually afk or offtab and l
 
 HHEHEEAAAAVILY encourage c+hing actually, i really like sitting with people i just usually dont approach others cuz im a smelly adult and im not sure how people are with me sitting around them
 
-^^^ 4 the above if youre worried about me like..reacting?to you sitting with me just know i do not care and im also almost always offtab on some sonic slop game off roblox  so i likely wont even see you for a while
+^^^ 4 the above if youre worried about me like..reacting?to you sitting with me just know i do not care and im also almost always offtab on some sonic slop game off roblox OR im drawing on my magma so i likely wont even see you for a while
 
 SHIPS INT IF YOU WANT I DONT GAF - very big metonic, metadow, mephinite, mephourge and manadow shipper but i like any and all ships! just sonamy iwc cuz ive had a LOT of bad experiences with sonamy shippers, its nothing personal to you though
 

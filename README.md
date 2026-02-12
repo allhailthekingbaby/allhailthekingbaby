@@ -11,6 +11,8 @@ be warned my guns is different again but this time VERY different😂😂
 
 ![](https://i.postimg.cc/2jcrvX7P/CROWN.webp)
 
+shouldve added this a while ago. we are a SYSTEM btw. medically semi-recognised?, undiagnosed DID. most of the time the skin i have on is an introject whos in front so please DONT BE FUCKING WEIRD. i mean either way dont be weird cuz most people i see on pt are minors and i am NOT one of your kind buddy😂😂
+
 always open to c+h, int, kiss, boop, whatever but im usually afk or offtab and literally require you to w2i or i wont see you
 
 HHEHEEAAAAVILY encourage c+hing actually, i really like sitting with people i just usually dont approach others cuz im a smelly adult and im not sure how people are with me sitting around them

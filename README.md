@@ -1,3 +1,5 @@
+[SYSTEM SPECIFIC strawpage (wip)] (https://widewebsys.straw.page/) 
+
 [prns page](https://en.pronouns.page/@vyytech)  ⏖  [rentry](https://rentry.co/allhailtheking)  ⏖  [strawpage](https://allhailthekingbaby.straw.page)  ⏖  [ata](https://allhailtheking.atabook.org)  ⏖  [guns](https://guns.lol/vyytech)  ⏖  [magma](https://magma.com/invite/S902D_6N)
 
 be warned my guns is different again but this time VERY different😂😂

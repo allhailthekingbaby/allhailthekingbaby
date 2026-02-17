@@ -3,8 +3,6 @@ PLEASE READ THIS!!!!!!
 
 [prns page](https://en.pronouns.page/@vyytech)  ⏖  [rentry](https://rentry.co/allhailtheking)  ⏖  [strawpage](https://allhailthekingbaby.straw.page)  ⏖  [ata](https://allhailtheking.atabook.org)  ⏖  [guns](https://guns.lol/vyytech)  ⏖  [magma](https://magma.com/invite/S902D_6N)
 
-be warned my guns is different again but this time VERY different😂😂
-
 # scourge maybe
 ![](https://i.postimg.cc/SRb16Kqm/Untitled323-20260110162130.png) 
 
@@ -17,6 +15,10 @@ be warned my guns is different again but this time VERY different😂😂
 shouldve added this a while ago. we are a SYSTEM btw. medically semi-recognised?, undiagnosed DID. most of the time the skin i have on is an introject whos in front so please DONT BE FUCKING WEIRD. i mean either way dont be weird cuz most people i see on pt are minors and i am NOT one of your kind buddy😂😂
 
 youre free to add our simplyplural mostly to make your life easier and see whos here, its "vyytechh"🥺🥺🥺pls add us we yearn
+
+![](https://i.postimg.cc/2jcrvX7P/CROWN.webp)
+
+i seriously hate being crowded. cuddle piles are a different story but having a ton of people just STAND AROUND ME makes me uncomfortable, you will likely see me move around a lot to get away or be completely unresponsive if im being crowded ^_^
 
 ![](https://i.postimg.cc/2jcrvX7P/CROWN.webp)
 

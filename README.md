@@ -9,7 +9,7 @@ PLEASE READ THIS!!!!!!
 ![](https://i.postimg.cc/XY6fWH1C/image-2024-05-23-212030973.png)
 
 　　scourge , tech , finn　masc prns
- 　　　　c+h , int freely / enc !
+ 　　　　　　　　　　　c+h , int freely / enc !
 
 ![](https://i.postimg.cc/XY6fWH1C/image-2024-05-23-212030973.png)
  

@@ -11,4 +11,4 @@ PLEASE READ THIS!!!!!!
 
 currently working on ts hold on
  
-COOL PEOEPLE (MY FRIEINDS ^_^) [@HighlyRadioactiveChemical](https://github.com/HighlyRadioactiveChemical) [@sl33plessnights](https://github.com/sl33plessnights) [@radixclz](https://github.com/radicxlz) [@ENDLESSCYCLES](https://github.com/ENDLESSCYCLES)
+COOL PEOEPLE (MY FRIEINDS ^_^) [@HighlyRadioactiveChemical](https://github.com/HighlyRadioactiveChemical) [@sl33plessnights](https://github.com/sl33plessnights) [@radixclz](https://github.com/radicxlz) [@ENDLESSCYCLES](https://github.com/ENDLESSCYCLES) [@pupcupfan](https://github.com/pupcupfan)

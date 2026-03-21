@@ -1,8 +1,21 @@
-[SYSTEM SPECIFIC strawpage (wip)](https://widewebsys.straw.page/) 
-PLEASE READ THIS!!!!!! 
+<p align="center" </p>
+<a href="https://widewebsys.straw.page/">sys strawpage</a>
 
-[prns page](https://en.pronouns.page/@vyytech) [rentry](https://rentry.co/allhailtheking) [straw](https://discharge2026.straw.page) [ata](https://allhailtheking.atabook.org) [guns](https://guns.lol/vyytech) [magma](https://magma.com/invite/S902D_6N)
+![](https://i.postimg.cc/t4YdZcGr/Untitled474-20260321092223.png) 
 
-redoing profile
+<p align="center" 
  
-COOL PEOEPLE (MY FRIEINDS ^_^) [@HighlyRadioactiveChemical](https://github.com/HighlyRadioactiveChemical) [@sl33plessnights](https://github.com/sl33plessnights) [@radixclz](https://github.com/radicxlz) [@ENDLESSCYCLES](https://github.com/ENDLESSCYCLES) [@pupcupfan](https://github.com/pupcupfan)
+<a href="https://en.pronouns.page/@vyytech">prns</a> 。<a href="https://rentry.co/allhailtheking">rentry</a> 。<a href="https://discharge2026.straw.page">straw</a> 。<a href="https://allhailtheking.atabook.org">ata</a> 。<a href="https://guns.lol/vyytech">guns</a>
+
+<p align="center"
+
+。𖥔　i know that i can take a bow 𓂋 ᭡
+
+![](https://i.postimg.cc/jjfzvJ57/Untitled474-20260321094959.png)
+
+<p align="center"
+ 
+friends !  
+<a href="https://github.com/HighlyRadioactiveChemical">@HighlyRadioactiveChemical</a> <a href="https://github.com/sl33plessnights">@sl33plessnights</a> <a href="https://github.com/radicxlz">@radicxlz (partner !)</a> <a href="https://github.com/pupcupfan">@pupcupfan</a>  
+if you arent here its not because i hate you and you need to die i just dont talk to you enough / dont have or know your git
+</p>

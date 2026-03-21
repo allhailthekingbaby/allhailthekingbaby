@@ -1,6 +1,10 @@
 <p align="center" </p>
 <a href="https://widewebsys.straw.page/">sys strawpage</a>
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=allhailthekingbaby&label=　　𖥔　　&color=e980c7">
+</p>
+
 ![](https://i.postimg.cc/t4YdZcGr/Untitled474-20260321092223.png) 
 
 <p align="center" 

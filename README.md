@@ -2,10 +2,10 @@
 <a href="https://widewebsys.straw.page/">sys strawpage</a>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=allhailthekingbaby&label=　　𖥔　　&color=e980c7">
+  <img src="https://komarev.com/ghpvc/?username=allhailthekingbaby&label=　　𖥔　　&color=61959e">
 </p>
 
-![](https://i.postimg.cc/t4YdZcGr/Untitled474-20260321092223.png) 
+![](https://i.postimg.cc/s26jYq4H/Untitled474-20260322135314.png) 
 
 <p align="center" 
  
@@ -13,9 +13,9 @@
 
 <p align="center"
 
-。𖥔　i know that i can take a bow 𓂋 ᭡
+。𖥔　a real scourge all the same 𓂋 ᭡
 
-![](https://i.postimg.cc/jjfzvJ57/Untitled474-20260321094959.png)
+![](https://i.postimg.cc/MZj6BsMh/Untitled474-20260322140031.png)
 
 <p align="center"
  

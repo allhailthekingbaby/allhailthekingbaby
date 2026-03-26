@@ -20,6 +20,6 @@
 <p align="center"
  
 friends !  
-<a href="https://github.com/HighlyRadioactiveChemical">@HighlyRadioactiveChemical</a> <a href="https://github.com/sl33plessnights">@sl33plessnights</a> <a href="https://github.com/radicxlz">@radicxlz (partner !)</a> <a href="https://github.com/pupcupfan">@pupcupfan</a>  
+<a href="https://github.com/HighlyRadioactiveChemical">@HighlyRadioactiveChemical</a> <a href="https://github.com/sl33plessnights">@sl33plessnights</a> <a href="https://github.com/radicxlz">@radicxlz (partner !)</a> <a href="https://github.com/pupcupfan">@pupcupfan</a> <a href="https://github.com/NoLoveInTheHouseOfG0ld">@NoLoveInTheHouseOfG0ld</a>  
 if you arent here its not because i hate you and you need to die i just dont talk to you enough / dont have or know your git
 </p>

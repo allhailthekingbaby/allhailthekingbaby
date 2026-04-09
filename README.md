@@ -24,6 +24,6 @@ if i am sat with <a href="https://github.com/sl33plessnights">@sl33plessnights</
 <p align="center"
  
 friends !  
-<a href="https://github.com/HighlyRadioactiveChemical">@HighlyRadioactiveChemical</a> <a href="https://github.com/sl33plessnights">@sl33plessnights</a> <a href="https://github.com/radicxlz">@radicxlz (partner !)</a> <a href="https://github.com/pupcupfan">@pupcupfan</a> <a href="https://github.com/NoLoveInTheHouseOfG0ld">@NoLoveInTheHouseOfG0ld</a> <a href="https://github.com/real-sonic">@real-sonic</a> <a href="https://github.com/sekicollective">@sekicollective</a>
+<a href="https://github.com/HighlyRadioactiveChemical">@HighlyRadioactiveChemical</a> <a href="https://github.com/sl33plessnights">@sl33plessnights</a> <a href="https://github.com/radicxlz">@radicxlz (partner !)</a> <a href="https://github.com/NoLoveInTheHouseOfG0ld">@NoLoveInTheHouseOfG0ld</a> <a href="https://github.com/real-sonic">@real-sonic</a> <a href="https://github.com/sekicollective">@sekicollective</a>
 if you arent here i just dont talk to yiu enough ok? ok
 </p>
